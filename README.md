@@ -1,4 +1,6 @@
 # Business Proposal For Louisa Coffee Shop
+### Link to my Business Proposal 
+https://drive.google.com/file/d/1s-Dug4sDC8FHXqk3KjzPJFBly83FhhPi/view?usp=sharing
 
 #### Louisa is the biggest Taiwanese coffee shop chain company with more than 500 stores across the region.With its fast-paced business psychology,they have already outperformed Starbucks by its number of stores.  
 #### Through this business proposal i showcased my understanding of financial analysis, my ability to analyze data, and propose innovative solutions.﻿
